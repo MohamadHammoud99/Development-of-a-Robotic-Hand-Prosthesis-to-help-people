@@ -45,6 +45,9 @@ Due to time constraints, we were not able to go further in the project, so we ma
 
 https://user-images.githubusercontent.com/85926752/164972312-23cba7ed-f2b3-4c1d-8d7f-abd14508a87f.mp4
 
+https://user-images.githubusercontent.com/85926752/164972669-47fcfb32-3c0e-4253-99fc-30a737fe6b6e.mp4
 
 https://user-images.githubusercontent.com/85926752/164972221-7c7d4d98-c7fe-43a6-b77b-390cc2af6c31.mp4
+
+https://user-images.githubusercontent.com/85926752/164972503-8eed7fdc-36a6-4739-9553-43103e78e911.mp4
 
